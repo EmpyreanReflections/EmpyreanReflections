@@ -1,7 +1,7 @@
-­  ­ ­ ⁠  ­ ­ ­ ⋆.˚ ───────୨ৎ─────── ⋆.˚
+­  ­ ­ ­ ⋆.˚ ────────୨ৎ──────── ⋆.˚
 <img width="500" height="560" alt="Untitled491_20250810100531" src="https://github.com/user-attachments/assets/a0bec422-6d35-40b1-af41-6365dd8f2e8f" />
 
- ­ ­ ⁠  ­ ­ ­   ­ ­  ­৯  ­ ­  ­ ­find me at hyv / alnst area
+ ­ ­ ⁠  ­ ­ ­   ­ ­  ­ *✦*  ­ ­  ­ ­find me at hyv / alnst area   
 <!--
 **EmpyreanReflections/EmpyreanReflections** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
