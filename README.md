@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="736" height="736" alt="Untitled490_20250810094057" src="https://github.com/user-attachments/assets/8087d175-3221-40fe-ad75-9924f4aa7cfb" />
+
 
 <!--
 **EmpyreanReflections/EmpyreanReflections** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
