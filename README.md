@@ -1,5 +1,5 @@
-­  ­ ­ ⁠  ­  ­ ­ ⋆.˚ ───────୨ৎ─────── ⋆.˚
-<img width="430" height="430" alt="Untitled490_20250810094057" src="https://github.com/user-attachments/assets/8087d175-3221-40fe-ad75-9924f4aa7cfb" />
+­  ­ ­ ⁠  ­ ­ ­ ⋆.˚ ───────୨ৎ─────── ⋆.˚
+<img width="500" height="560" alt="Untitled491_20250810100531" src="https://github.com/user-attachments/assets/a0bec422-6d35-40b1-af41-6365dd8f2e8f" />
 
  ­ ­ ⁠  ­ ­ ­   ­ ­  ­৯  ­ ­  ­ ­find me at hyv / alnst area
 <!--
