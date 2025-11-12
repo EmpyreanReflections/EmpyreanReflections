@@ -1,5 +1,4 @@
-
-SOMEONE POSTED ME N MY FRIEND'S SKINS ON PINTEREST, PLEASE [REPORT THEM !!](https://ph.pinterest.com/cp1dcups/)
+SOMEONE STOLE ME N MY FRIEND'S SKINS AND POSTED IT ON PINTEREST, PLEASE [REPORT THEM !!](https://ph.pinterest.com/cp1dcups/)
 
 <p align="center">
 <img width="100" alt="yes" src="https://github.com/user-attachments/assets/7dbe129b-f3f6-4560-8cf9-99c671c6d25b" />
