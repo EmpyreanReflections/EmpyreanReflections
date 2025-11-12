@@ -1,13 +1,17 @@
-<img width="1474" height="436" alt="Untitled499_20250901141812" src="https://github.com/user-attachments/assets/4ac5f2d5-ac22-4df5-b093-f83f96683727" />
+
+SOMEONE POSTED ME N MY FRIEND'S SKINS ON PINTEREST, PLEASE [REPORT THEM !!](https://ph.pinterest.com/cp1dcups/)
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/85fb82c5-54bf-4754-8529-6327a7031306" />
+<img width="100" alt="yes" src="https://github.com/user-attachments/assets/7dbe129b-f3f6-4560-8cf9-99c671c6d25b" />
+<img width="100" alt="yes" src="https://github.com/user-attachments/assets/157741c9-b430-4ff5-9a19-88295b3d6407" />
 </p>
+  
 <p align="center">
-  github wip . . .
-</p>
+<img width="100" alt="yes" src="https://github.com/user-attachments/assets/a78bb516-a8c9-4dec-8145-5548938e6beb" />
+<img width="100" alt="yes"
+src="https://github.com/user-attachments/assets/b9f37507-bb28-4817-9f6c-726e1fad26c6"
+  </p>
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=EmpyreanReflections&color=eaa981&style=plastic&label=&nbsp♡&nbsp" />
 </p>
-
-<img width="1474" height="436" alt="Untitled499_20250901141659" src="https://github.com/user-attachments/assets/94c68392-cef5-46ac-ba04-733b4c01a068" />
