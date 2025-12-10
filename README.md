@@ -1,5 +1,5 @@
 <p align ="center">
-$${\color{7299D0}"命に嫌われている"}$$
+"命に嫌われている"
 </p>
 
 <p align="center">
