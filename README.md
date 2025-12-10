@@ -3,13 +3,12 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/5812d53f-823f-4dbf-a6bb-59428cf5888f"
-
-  ---
+<img src="https://github.com/user-attachments/assets/031c0411-ac6a-4d10-bd44-0823080c3ebd"
+  </p>
 <p align="center">
 wip . . .
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=EmpyreanReflections&color=CCE9FB&style=plastic&label=⁠◝✮⁠◜" />
+  <img src="https://komarev.com/ghpvc/?username=EmpyreanReflections&color=707ABB&style=plastic&label=⁠◝✮⁠◜" />
 </p>
