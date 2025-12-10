@@ -1,11 +1,15 @@
-SOMEONE STOLE ME N MY FRIEND'S SKINS AND POSTED IT ON PINTEREST, PLEASE [REPORT THEM !!](https://ph.pinterest.com/cp1dcups/)
-
----
 <p align ="center">
-rmking . . .
+$${\color{7299D0}"命に嫌われている"}$$
 </p>
 
+<p align="center">
+<img src="https://github.com/user-attachments/assets/5812d53f-823f-4dbf-a6bb-59428cf5888f"
+
+  ---
+<p align="center">
+wip . . .
+</p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=EmpyreanReflections&color=cfb6c3&style=plastic&label=⁠◝✮⁠◜" />
+  <img src="https://komarev.com/ghpvc/?username=EmpyreanReflections&color=CCE9FB&style=plastic&label=⁠◝✮⁠◜" />
 </p>
